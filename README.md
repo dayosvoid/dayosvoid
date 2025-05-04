@@ -2,7 +2,7 @@
 - 👀 I’m interested in creating,designing,coding,learning
 - 🌱 I’m currently learning javascript
 - 💞️ I’m looking to collaborate on ...
-- 📫 How to reach me atimileyin@gmail.com
+- 📫 How to reach me atimileyin911@gmail.com
 - 😄 Pronouns: ...
 - ⚡ Fun fact: you would be my first collaboration
 
